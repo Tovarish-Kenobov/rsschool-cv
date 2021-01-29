@@ -1,1 +1,1 @@
-https://tovarishch-kenobov.github.io/rsschool-cv/cv
+https://tovarish-kenobov.github.io/rsschool-cv/cv
